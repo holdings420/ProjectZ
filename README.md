@@ -4,3 +4,5 @@ Black Pink
 ## Fruity and caramel
 ## How do I encrypt and maintain intellectual property over this release
 ## Pink and yet so uncommon
+## Destination Revelation
+## Closed and yet Open
